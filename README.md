@@ -2,7 +2,12 @@
 
 Sofía Avendaño, reconocida modelo y bailarina trans colombiana por su participación en diferentes programas de televisión, ha dado un nuevo giro en su carrera al unirse a la plataforma FAMIGO, similar a OnlyFans. En este nuevo espacio, la colombiana comparte contenido exclusivo y erótico para sus seguidores, mostrando una faceta seductora a la que muchos estaban acostumbrados a ver.
 
-En los últimos meses, diversas personalidades colombianas han comenzado a explorar el mundo del contenido para adultos a través de diferentes plataformas, incluida FAMIGO, plataforma que sigue ganando popularidad en el país. Este cambio refleja una tendencia en la que más figuras públicas optan por conectar con su audiencia de una forma diferente y más íntima.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 A continuación, te compartimos algunas de las fotos más atrevidas de Sofia Avendaño en FAMIGO, además de detalles sobre este nuevo paso en su carrera.
 
